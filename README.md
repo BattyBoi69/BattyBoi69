@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @BattyBoi69
 - 👀 I’m interested in moi-même
-- 🌱 I’m currently learning fall
+- 🌱 I’m currently learning gangsta stuff
 - 💞️ I’m looking to collaborate on collaboration
 - 📫 How to reach me: ...
 
